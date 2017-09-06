@@ -8,4 +8,4 @@ Please watch your step as you enter the hub. The start of the tour is at the end
 
 And the exit is right through the gift shop over there :)
 
-Thank you for visiting!
+Thank you for visiting! Please come again!
